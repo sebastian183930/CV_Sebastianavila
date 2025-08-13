@@ -18,7 +18,7 @@
 
 ## 🎓 Educación
 ### **Colegio Monseñor Bernardo Sanchez** _(2018 - 2023)_
-- Título obtenido.
+- BACHILLER ACADEMICO.
 
 ## 💡 Habilidades
 - **ESCUCHA ACTIVA**
